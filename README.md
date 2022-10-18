@@ -1,1 +1,1 @@
-# blad_infakt
+Bła w formualrzu infakt
